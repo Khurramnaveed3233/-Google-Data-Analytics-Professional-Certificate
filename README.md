@@ -1,1 +1,2 @@
-[Google Data Analytics Professional Certificate.pdf](https://github.com/user-attachments/files/18694546/Google.Data.Analytics.Professional.Certificate.pdf)
+
+![Google Data Analytics](https://github.com/user-attachments/assets/45692e65-aa79-4cc6-a67e-2ffd3107a8ab)
